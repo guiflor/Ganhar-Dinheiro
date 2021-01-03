@@ -2,8 +2,7 @@
 ____________________________________________________________________________________________________________________________________________
 ## 🤑 Pagou $ 199' O Melhor Site Para Lives e Streaming 💸💲💲
 
-Se cadastre aqui e comece já fazer suas lives 👇👇👇
-https://bit.ly/ganhar-com-lives-e-streaming 🤑
+Se cadastre aqui e comece já fazer suas lives 👉 https://bit.ly/ganhar-com-lives-e-streaming 🤑
 
 Vídeo do canal no youtube:
 https://youtu.be/Y-bTkzodVNs
